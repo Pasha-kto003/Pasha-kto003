@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello on my page pathetic
 
 ![paketik](https://user-images.githubusercontent.com/73583155/136736761-83af75c3-b4a7-431d-8c99-b2be8eea1dd4.jpg)
 
