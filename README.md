@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+![paketik](https://user-images.githubusercontent.com/73583155/136736761-83af75c3-b4a7-431d-8c99-b2be8eea1dd4.jpg)
 
 <!--
 **Pasha-kto003/Pasha-kto003** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
